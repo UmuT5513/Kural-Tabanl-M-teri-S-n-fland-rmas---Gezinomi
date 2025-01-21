@@ -1,0 +1,1 @@
+# Kural-Tabanl-M-teri-S-n-fland-rmas---Gezinomi
